@@ -1,2 +1,2 @@
-##Class Activities solo and group
+Class Activities solo and group
 
