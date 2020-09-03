@@ -1,3 +1,2 @@
-# ClassActivity
-# Evelynn Griggs
-# 24 years in the restaurant industry
+##Class Activities solo and group
+
